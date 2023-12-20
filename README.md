@@ -1,1 +1,0 @@
-# IgorPragmatico.github.io
